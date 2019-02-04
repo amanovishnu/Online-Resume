@@ -1,2 +1,2 @@
-# ashokdey.github.io
+# amanovishnu.github.io
 MyOnlineResume
